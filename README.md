@@ -1,4 +1,4 @@
-## Hi there 👋
+### Hello, call me Rain or just Snape.
 
 <!--
 **HalfBPrince/HalfBPrince** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
