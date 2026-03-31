@@ -8,4 +8,4 @@ More info on straw page--mostly for PC/Laptop users.
 The Strawpage, however, is sligthly outdated. Planning to create a new one.
 
 
-PS: The art in my pfp is not mine. I couldn't find out who the artist is...in case you know, make sure to let me know.
+PS: The art on my pfp is not mine. I couldn't find out who the artist is...in case you know, make sure to let me know.
