@@ -9,4 +9,4 @@ The Strawpage, however, is not completely accurate now (although i did update a 
 BaTIM strawpage under development.
 
 
-PS: Pfp art by @louman_art
+PS: Pfp art is not mine.
