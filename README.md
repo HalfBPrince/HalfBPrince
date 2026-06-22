@@ -1,4 +1,4 @@
-# Hello. Please call me Severus, Rain for nickname.
+# Hello. Please call me Severus or Rain.
 
 Please do not copy my ponies or take inspo of them unless you ask for permission.
 
