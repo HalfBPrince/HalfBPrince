@@ -1,4 +1,4 @@
-# Hello, call me Rain or simply Snape/Severus.
+# Hello. Please call me Severus, Rain for nickname.
 
 Please do not copy my ponies or take inspo of them unless you ask for permission.
 
