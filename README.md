@@ -9,4 +9,4 @@ The Strawpage, however, is not completely accurate now (although i did update a 
 
 
 
-PS: Pfp art by NecroSick .
+PS: Pfp art by JoyTheArtist on Artfight. Thank you so much! I love it.
