@@ -12,7 +12,6 @@ More info on straw page.
 ...
 The Strawpage, however, is not done at all yet. You can check out the info section, for now.
 <p align="center">
-  
 [ꜱᴛʀᴀᴡᴘᴀɢᴇ](https://rainsss.straw.page/)  [𝘼𝙩𝙖𝙗𝙤𝙤𝙠](https://severuss.atabook.org/)
 
 <p align="center">
