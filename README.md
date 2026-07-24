@@ -11,6 +11,5 @@ More info on straw page.
 ...
 The Strawpage, however, is not done at all yet. You can check out the info section, for now.
 
-
-
+[ꜱᴛʀᴀᴡᴘᴀɢᴇ](https://rainsss.straw.page/)
 PS: Pfp art made by Me, readme image by @Louman_Art.
