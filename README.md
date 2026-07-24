@@ -6,7 +6,7 @@
 
 Please do not copy my ponies or take inspo of them unless you ask for permission.
 
-More info on straw page--mostly for PC/Laptop users.
+More info on straw page.
 
 ...
 The Strawpage, however, is not done at all yet. You can check out the info section, for now.
