@@ -13,4 +13,4 @@ The Strawpage, however, is not done at all yet. You can check out the info secti
 
 
 
-PS: Pfp art made by Me .
+PS: Pfp art made by Me, readme image by @Louman_Art.
