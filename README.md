@@ -15,7 +15,7 @@ Please do not copy my ponies or take inspo of them unless you ask for permission
 More info on straw page.
 <p align="center">
 ...
-The Strawpage, however, is not done yet. Check out the info about me, phot dump, and dni sections for now.
+The Strawpage is nearly finished. Remaining pages to be done are Dni, Gimmicks, and My Friends.
 <p align="center">
 PS: Pfp art made by Me, readme image by @Louman_Art.
 
