@@ -15,7 +15,7 @@ Hello, my name's Severus, but refer to me as Rain if you wish to.
 <p align="center">
 Please do not copy my ponies or take inspo of them unless you ask for permission.
 <p align="center">
-I rarely follow people. If i'm following you, congrats. I see you as a nice or interesting person in a way.
+I rarely follow people (excluding my friends). If i'm following you, congrats. I see you as a nice or interesting person in a way.
 <p align="center">
 More info on straw page.
 <p align="center">
