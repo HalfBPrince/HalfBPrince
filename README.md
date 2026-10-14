@@ -18,7 +18,8 @@ Please do not copy my ponies or take inspo of them unless you ask for permission
 I rarely follow people (excluding my friends). If i'm following you, congrats. I see you as a nice or interesting person in a way.
 <p align="center">
   If i notice you have similar interests as me or i notice something i like in general, there's a high chance i might just whisper you nonstop without realising. If it pisses you, be as good as to tell me. I get talkative when i'm excited out of nowhere. (I'm otherwise not talkative.)
-More info on straw page.
+<p align="center">
+  More info on straw page.
 <p align="center">
 ...
 The Strawpage is nearly finished. Remaining page to finish is Friends page. The rest is pretty much fine.
