@@ -20,7 +20,7 @@ I rarely follow people (excluding my friends). If i'm following you, congrats. I
 More info on straw page.
 <p align="center">
 ...
-The Strawpage is nearly finished. Remaining pages to be done are Dni, Gimmicks, and My Friends.
+The Strawpage is nearly finished. Remaining page to finish is Friends page. The rest is pretty much fine.
 <p align="center">
 PS: Pfp art made by Me, readme image by @Louman_Art.
 
