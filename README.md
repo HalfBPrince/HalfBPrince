@@ -5,7 +5,7 @@
 <p align="center">
 $\color{#bbb337}{PT's~~𝓢𝓮𝓿𝓮𝓻𝓾𝓼~𝓢𝓷𝓪𝓹𝓮 ⟡ 𝕡𝕥-𝕠𝕗-𝕒𝕨𝕖𝕤𝕠𝕞𝕖𝕟𝕖𝕤𝕤~~||~~𝕡𝕥-𝕤𝕙𝕚𝕡-𝕟𝕠𝕞𝕚𝕟𝕒𝕥𝕚𝕠𝕟𝕤}$
 <p align="center">
-  $\color{#79811f}{Thank~you. }$
+  Thank~you.
 
 
 
