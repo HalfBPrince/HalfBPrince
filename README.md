@@ -11,7 +11,7 @@ $\color{#76605B}{PT's~~𝓢𝓮𝓿𝓮𝓻𝓾𝓼~𝓢𝓷𝓪𝓹𝓮 ⟡ �
 
 
 
-![image alt](https://github.com/HalfBPrince/HalfBPrince/blob/83c5d8cb46e92feb4d60fd4996bb86736df98627/cbbf5586-7c19-4583-be04-f767ef36df2a.png)
+<img width="735" height="540" alt="Image" src="https://github.com/user-attachments/assets/54fd3401-e8f7-4fc5-a363-1dabc9f192ee" />
 <p align="center">
 $\color{#7A5768}{Hello,~my~name's~Severus.~If~you~wish~to,~refer~to~me~as~Rain.}$
 <p align="center">
