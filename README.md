@@ -1,3 +1,4 @@
+<img src="Severus.png" width="500" align="left">
 <p align="center">
     README under construction!!!
 <p align="center">
@@ -8,8 +9,6 @@
 $\color{#76605B}{PT's~~𝓢𝓮𝓿𝓮𝓻𝓾𝓼~𝓢𝓷𝓪𝓹𝓮 ⟡ 𝕡𝕥-𝕠𝕗-𝕒𝕨𝕖𝕤𝕠𝕞𝕖𝕟𝕖𝕤𝕤~~||~~𝕡𝕥-𝕤𝕙𝕚𝕡-𝕟𝕠𝕞𝕚𝕟𝕒𝕥𝕚𝕠𝕟𝕤}$
 <p align="center">
   $\color{#765B64}{Thank~you.}$
-<p align="center">
-![alt text](https://github.com/HalfBPrince/HalfBPrince/blob/7eec1247e7c5a3252456ec6b2bb4259e1e23b665/Untitled30_20261018195838.png)
 <p align="center">
 $\color{#7A5768}{Hello,~my~name's~Severus.~If~you~wish~to,~refer~to~me~as~Rain.}$
 <p align="center">
