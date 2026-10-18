@@ -5,6 +5,7 @@ $\color{#766D5B}{╰┈➤~𝚆𝚎𝚕𝚌𝚘𝚖𝚎~𝚝𝚘~𝚖𝚢~𝚙�
 <img src="Severus2.png" width="350" align="right">
   <br><br>
 $\color{#7A5768}{Hello,~my~name's~Severus.}$
+  <p align="center">
   $\color{#7A5768}{If~you~wish~to,~refer~to~me~as~Rain.}$
 <br><br><br><br>
 <p align="center">
