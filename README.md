@@ -8,6 +8,7 @@
 $\color{#76605B}{PT's~~𝓢𝓮𝓿𝓮𝓻𝓾𝓼~𝓢𝓷𝓪𝓹𝓮 ⟡ 𝕡𝕥-𝕠𝕗-𝕒𝕨𝕖𝕤𝕠𝕞𝕖𝕟𝕖𝕤𝕤~~||~~𝕡𝕥-𝕤𝕙𝕚𝕡-𝕟𝕠𝕞𝕚𝕟𝕒𝕥𝕚𝕠𝕟𝕤}$
 <p align="center">
   $\color{#765B64}{Thank~you.}$
+<p align="center">
 <img width="735" height="540" alt="Image" src="https://github.com/user-attachments/assets/54fd3401-e8f7-4fc5-a363-1dabc9f192ee" />
 <p align="center">
 $\color{#7A5768}{Hello,~my~name's~Severus.~If~you~wish~to,~refer~to~me~as~Rain.}$
