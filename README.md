@@ -8,10 +8,10 @@ $\color{#76605B}{PT's~~𝓢.~𝓢𝓷𝓪𝓹𝓮}$
 $\color{#76605B}{𝚙𝚝-𝚜𝚑𝚒𝚙-𝚗𝚘𝚖𝚒𝚗𝚊𝚝𝚒𝚘𝚗𝚜~~||~~𝚙𝚝-𝚘𝚏-𝚊𝚠𝚎𝚜𝚘𝚖𝚎𝚗𝚎𝚜𝚜}$
 <p align="center">
 $\color{#765B64}{Thank~you.}$ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-<br clear="both"/>
-<img src="Severus2.png" width="350" align="right">
 <p align="center">
 $\color{#7A5768}{Hello,~my~name's~Severus.~If~you~wish~to,~refer~to~me~as~Rain.}$
+<br clear="both"/>
+<img src="Severus2.png" width="350" align="right">
 <p align="center">
 $\color{#78595E}{Do~not~copy~any~of~my~ponies~unless~i~allow~you~to~do~so.}$
 <p align="center">
