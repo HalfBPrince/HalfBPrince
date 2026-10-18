@@ -10,7 +10,8 @@ $\color{#7A5768}{Hello,~my~name's~Severus.}$
 <p align="center">
 $\color{#78595E}{Do~not~copy~any~of~my~ponies~unless~i~allow~you~to~do~so.}$
 <p align="center">
-$\color{#78596D}{...I'm~an~incredibly~awkward~person~with~social~anxiety.~However,~there~are~moments~when~i~might~be~actually~talkative,~when~it~comes~to~same~interests.}$
+$\color{#78596D}{...I'm~an~incredibly~awkward~person~with~social~anxiety.}$
+$\color{#78596D}{However,~there~are~moments~when~i~might~be~actually~talkative,~when~it~comes~to~same~interests.}
 <p align="center">
 $\color{#735978}{Please,~check~out~my~strawpage~for~more~info.~It's~almost~finished.}$
 <img src="severus legs.png" width="350" align="left">ㅤ
