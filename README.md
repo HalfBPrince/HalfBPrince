@@ -4,11 +4,12 @@
 <p align="center">
   $\color{#766D5B}{╰┈➤~𝚆𝚎𝚕𝚌𝚘𝚖𝚎~𝚝𝚘~𝚖𝚢~𝚙𝚛𝚘𝚏𝚒𝚕𝚎.}$
 <p align="center">
-"𝘞𝘩𝘢𝘵 𝘸𝘰𝘶𝘭𝘥 𝘺𝘰𝘶𝘳 𝘩𝘦𝘢𝘥 𝘩𝘢𝘷𝘦 𝘣𝘦𝘦𝘯 𝘥𝘰𝘪𝘯𝘨 𝘪𝘯 𝘏𝘰𝘨𝘴𝘮𝘦𝘢𝘥𝘦, 𝘗𝘰𝘵𝘵𝘦𝘳?” 𝘴𝘢𝘪𝘥 𝘚𝘯𝘢𝘱𝘦 𝘴𝘰𝘧𝘵𝘭𝘺. “𝘠𝘰𝘶𝘳 𝘩𝘦𝘢𝘥 𝘪𝘴 𝘯𝘰𝘵 𝘢𝘭𝘭𝘰𝘸𝘦𝘥 𝘪𝘯 𝘏𝘰𝘨𝘴𝘮𝘦𝘢𝘥𝘦. 𝘕𝘰 𝘱𝘢𝘳𝘵 𝘰𝘧 𝘺𝘰𝘶𝘳 𝘣𝘰𝘥𝘺 𝘩𝘢𝘴 𝘱𝘦𝘳𝘮𝘪𝘴𝘴𝘪𝘰𝘯 𝘵𝘰 𝘣𝘦 𝘪𝘯 𝘏𝘰𝘨𝘴𝘮𝘦𝘢𝘥𝘦.”
+$\color{#76605B}{PT's~~𝓢.~𝓢𝓷𝓪𝓹𝓮}$
+$\color{#76605B}{𝚙𝚝-𝚜𝚑𝚒𝚙-𝚗𝚘𝚖𝚒𝚗𝚊𝚝𝚒𝚘𝚗𝚜~~||~~𝚙𝚝-𝚘𝚏-𝚊𝚠𝚎𝚜𝚘𝚖𝚎𝚗𝚎𝚜𝚜}$
 <p align="center">
-$\color{#76605B}{PT's~~𝓢𝓮𝓿𝓮𝓻𝓾𝓼~𝓢𝓷𝓪𝓹𝓮 ⟡ 𝕡𝕥-𝕠𝕗-𝕒𝕨𝕖𝕤𝕠𝕞𝕖𝕟𝕖𝕤𝕤~~||~~𝕡𝕥-𝕤𝕙𝕚𝕡-𝕟𝕠𝕞𝕚𝕟𝕒𝕥𝕚𝕠𝕟𝕤}$
-<p align="center">
-  $\color{#765B64}{Thank~you.}$
+$\color{#765B64}{Thank~you.}$ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+<br clear="both"/>
+<img src="Severus2.png" width="350" align="right">
 <p align="center">
 $\color{#7A5768}{Hello,~my~name's~Severus.~If~you~wish~to,~refer~to~me~as~Rain.}$
 <p align="center">
