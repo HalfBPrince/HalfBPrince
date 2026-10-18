@@ -2,12 +2,11 @@
 <img src="Severus.png" width="350" align="left">ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 <p align="center">
 $\color{#766D5B}{╰┈➤~𝚆𝚎𝚕𝚌𝚘𝚖𝚎~𝚝𝚘~𝚖𝚢~𝚙𝚛𝚘𝚏𝚒𝚕𝚎.}$
-<img src="Severus2.png" width="350" align="right">
   <br><br>
 $\color{#7A5768}{Hello,~my~name's~Severus.}$
-  <p align="center">
   $\color{#7A5768}{If~you~wish~to,~refer~to~me~as~Rain.}$
 <br><br><br><br>
+  <img src="Severus2.png" width="350" align="right">
 <p align="center">
 $\color{#78595E}{Do~not~copy~any~of~my~ponies~unless~i~allow~you~to~do~so.}$
 <p align="center">
