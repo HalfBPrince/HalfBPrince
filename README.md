@@ -9,6 +9,8 @@ $\color{#76605B}{PT's~~𝓢𝓮𝓿𝓮𝓻𝓾𝓼~𝓢𝓷𝓪𝓹𝓮 ⟡ �
 <p align="center">
   $\color{#765B64}{Thank~you.}$
 <p align="center">
+![alt text](https://github.com/HalfBPrince/HalfBPrince/blob/7eec1247e7c5a3252456ec6b2bb4259e1e23b665/Untitled30_20261018195838.png)
+<p align="center">
 $\color{#7A5768}{Hello,~my~name's~Severus.~If~you~wish~to,~refer~to~me~as~Rain.}$
 <p align="center">
 $\color{#78595E}{Do~not~copy~any~of~my~ponies~unless~i~allow~you~to~do~so.}$
