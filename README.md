@@ -4,10 +4,20 @@
 <p align="center">
   $\color{#766D5B}{╰┈➤~𝚆𝚎𝚕𝚌𝚘𝚖𝚎~𝚝𝚘~𝚖𝚢~𝚙𝚛𝚘𝚏𝚒𝚕𝚎.}$
 <p align="center">
+<table>
+<tr>
+<td>
+<br>
 $\color{#76605B}{PT's~~𝓢.~𝓢𝓷𝓪𝓹𝓮~➤~𝚙𝚝-𝚜𝚑𝚒𝚙-𝚗𝚘𝚖𝚒𝚗𝚊𝚝𝚒𝚘𝚗𝚜~~||~~𝚙𝚝-𝚘𝚏-𝚊𝚠𝚎𝚜𝚘𝚖𝚎𝚗𝚎𝚜𝚜}$
-$\color{#76605B}{𝚙𝚝-𝚜𝚑𝚒𝚙-𝚗𝚘𝚖𝚒𝚗𝚊𝚝𝚒𝚘𝚗𝚜~~||~~𝚙𝚝-𝚘𝚏-𝚊𝚠𝚎𝚜𝚘𝚖𝚎𝚗𝚎𝚜𝚜}$
 <p align="center">
-$\color{#765B64}{Thank~you.}$ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+$\color{#765B64}{Thank~you.}$ㅤ
+
+<br>
+</td>
+</tr>
+</table>
+
+</div>ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 <p align="center">
 $\color{#7A5768}{Hello,~my~name's~Severus.~If~you~wish~to,~refer~to~me~as~Rain.}$
 <br clear="both"/>
