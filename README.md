@@ -11,6 +11,6 @@ $\color{#78595E}{Do~not~copy~any~of~my~ponies~unless~i~allow~you~to~do~so.}$
 $\color{#78596D}{...I'm~an~incredibly~awkward~person~with~social~anxiety.~However,~there~are~moments~when~i~might~be~actually~talkative,~when~it~comes~to~same~interests.}$
 <p align="center">
 $\color{#735978}{Please,~check~out~my~strawpage~for~more~info.~It's~almost~finished.}$
-<img src="Severus%20legs.png" width="350" align="left">ㅤ
+<img src="severus legs.png" width="350" align="left">ㅤ
 
 [ꜱᴛʀᴀᴡᴘᴀɢᴇ](https://rainsss.straw.page/)  [𝘼𝙩𝙖𝙗𝙤𝙤𝙠](https://severuss.atabook.org/)
