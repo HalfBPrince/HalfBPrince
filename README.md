@@ -19,13 +19,7 @@ $\color{#78595E}{Do~not~copy~any~of~my~ponies~unless~i~allow~you~to~do~so.}$
 <p align="center">
 $\color{#78596D}{...I'm~an~incredibly~awkward~person~with~social~anxiety.~However,~there~are~moments~when~i~might~be~actually~talkative,~when~it~comes~to~same~interests.}$
 <p align="center">
-<p align="center">
-  More info on straw page.
-<p align="center">
-...
-The Strawpage is nearly finished. Remaining page to finish is Friends page. The rest is pretty much fine.
-<p align="center">
-PS: Pfp art made by Me, readme image by @Louman_Art.
+$\color{#735978}{Please,~check~out~my~strawpage~for~more~info.~It's~almost~finished.}$
 
 
 [ꜱᴛʀᴀᴡᴘᴀɢᴇ](https://rainsss.straw.page/)  [𝘼𝙩𝙖𝙗𝙤𝙤𝙠](https://severuss.atabook.org/)
