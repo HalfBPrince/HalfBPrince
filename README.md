@@ -16,6 +16,8 @@ $\color{#735978}{Please,~check~out~my~strawpage~for~more~info.~It's~almost~finis
   <br><br><br><br><br>
 <img src="severus legs.png" width="350" align="left">
 <p align="center">
+$\color{#795865}{October--I've-been-feeling-angry-for-the-past-few-weeks,-meaning-it-is-possible-i-might-snap-at-you,-silly-reason-or-not.-Beware-please.}$
+<p align="center">
 $\color{#75615C}{PT's~𝓢.~𝓢𝓷𝓪𝓹𝓮→~~𝚙𝚝-𝚜𝚑𝚒𝚙-𝚗𝚘𝚖𝚒𝚗𝚊𝚝𝚒𝚘𝚗𝚜~||~𝚙𝚝-𝚘𝚏-𝚊𝚠𝚎𝚜𝚘𝚖𝚎𝚗𝚎𝚜𝚜.}$
 <p align="center">
 $\color{#785977}{𝒯𝒽𝒶𝓃𝓀~𝓎𝑜𝓊.}$
